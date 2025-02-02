@@ -17,7 +17,7 @@
 11. Please interact with ZERO right-wing or centrist people - Ban and blocked.
 12. Please have at least 2/5th LGBTIAQ+ people in your personal projects (projects besides this one the owner of this project doesn't own) unless there are less than 10 people working on it - Kick
 13. Please only use the kill command on your [WokeOS shell](https://youtu.be/y1AWos_zm6o&t=668) when the other commands (nag, whine, beat up,  etc.) haven't worked, and don't use these "assault commands" - including but not limited to the "kill" command - on LGBTIAQ+ processes, processes of color, and processes who identify as women. - Ban and block.
-14. We must respect each other's differences unless the qualities therin include being white, male, right-leaning, not supporting LGBTIAQ+, or wanting to focus on the code without politics, then they get banned and blocked. - Kick
+14. We must respect each other's differences unless the qualities therin include being white and male, right-leaning, not supporting LGBTIAQ+, or wanting to focus on the code without politics, then they get banned and blocked. - Kick
 
 
 ## Definition of terms
