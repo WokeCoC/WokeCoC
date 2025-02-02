@@ -4,6 +4,8 @@ This is a parody of the extreme, far-left leaning contributor covenant - along w
 
 That being said, I am disgusted by one thing Lunduke does, but it's honestly OK to disagree with each other on these things because politics in the real world are weird like that (I think, I don't go out much) - I hate it when he says "a man who thinks he's a woman" when refering to a trans woman or "a woman who think she's a man" when he is refering to a trans man. They, in my opinion, should be respected by their pronouns and sexual identities they are identifed as. For instance: I identify as per/pers AND he/him, but people go by different pronouns as they see fit and should be respected as such. Think of it kind of like autism: just like autism, genders, along with sexuality, are a spectrum.
 
+I also believe that words that can actually be used to cause harm - such as derogatory or racist slurs - SHOULD be banned from projects.
+
 Eh but who really cares what other people think. It only matters what YOU think and believe in. That's why I made this parody CoC - to get some of that mind-numbing horible wokeness of InclusionBot.md from the US gov DEI chatbot project (linked above) and things such as the Contributor Covenant and other woke shit off my brain. I think it's still numbing my brain a bit but oh well.
 
 Enjoy your day, guys!
