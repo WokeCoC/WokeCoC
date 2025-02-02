@@ -5,7 +5,7 @@
 ## General rules - punishments for breaking said rules
 
 1. No all white/male events - Kick
-2. No nonconsensual love/lust (including hugs) - Kick, then ban
+2. No nonconsensual love/lust (including but not limited to hugs) - Kick, then ban
 3. No use of the "Banned Terms" - Ban and blocked.
 4. No trolling or derogatory statements (see Banned Terms)
 5. Publishing other's private/personal info (including names) without permission - Ban and blocked
