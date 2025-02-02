@@ -1,4 +1,4 @@
-# NodeMixaholic Woke Code of Conduct v1.0
+# Woke Code of Conduct v1.0
 
 ***Before we begin:*** This code of conduct is to be copied verbatim (without modification or tampering) word-for word when using THIS code of coduct. HOWEVER, modifications ARE allowed IF you CHANGE THE TITLE and make it MORE WOKE (i.e. extremely left-leaning politically) AND ONLY ADD ON to it and/or FIX spelling/grammar mistakes - NO REMOVAL of any rules/banned terms unless they fit this agenda!
 
